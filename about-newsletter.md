@@ -28,11 +28,11 @@ Newsletter创作者会基于自己的兴趣、专业能力、行业经验和信�
 
 **案例：**
 
-[氢舟大副的氢舟泊船港](https://hypper.cn/creatorprofile/67)
+[氢舟大副的氢舟泊船港](https://hypper.cn/homepage/creator/67)
 
-[Zoe的商业内观](https://hypper.cn/creatorprofile/714?ref_code=)‌
+[Zoe的商业内观](https://hypper.cn/homepage/creator/714)
 
-[Roc的增长备忘录](https://hypper.cn/creatorprofile/7)
+[Roc的增长备忘录](https://hypper.cn/homepage/creator/7)
 
-[范米索的空无一物](https://hypper.cn/creatorprofile/733)
+[范米索的空无一物](https://hypper.cn/homepage/creator/733)
 
